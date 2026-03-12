@@ -1,1 +1,2 @@
-“An idiot admires complexity, a genius admires simplicity” - Terry Davis
+I wonder what to put here...
+I like watermelons.
